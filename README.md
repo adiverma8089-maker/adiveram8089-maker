@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Aditya
-**Aspiring Software developer || Aspiring Software Engineer ||**
+**Aspiring Full Stack developer || Aspiring Software Engineer ||**
 
 Email Me 👉 ✉️ **adiverma8089@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
